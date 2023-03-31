@@ -97,8 +97,8 @@ What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult ce
 
 All true pro-white advocates need to stay far away from NWG and anything that is associated with him. Most normal people are already repulsed by NWG's dumb ideology, but some projects like the The White People's Press do seem more legitimate. They are not. Do not give them your information and do not give them money. Below is a list of other brands and sites associated with NWG and possibly compromised.
 
-The White People Press
-whitedate.net
-whitedeal.net
-whitechild.net
-WhiteArtCollective
+The White People Press  
+whitedate.net  
+whitedeal.net  
+whitechild.net  
+WhiteArtCollective  
