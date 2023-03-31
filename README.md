@@ -37,9 +37,9 @@ Jared George did The After Party podcast with Jason. He has a [YouTube channel](
 
 ### School of the West
 
-[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents".
+[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents".  
 
-![](https://justice-initiative.net/wp-content/uploads/2023/03/SotW-1-300x46.png) 
+![](https://justice-initiative.net/wp-content/uploads/2023/03/SotW-1-300x46.png)  
 
 There it is… "Westernkind". Scroll down and you'll see "White Well-Being" there alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. The videos are hosted on Odysee. We look at the [Odysee page](https://odysee.com/@School_of_the_West:b) to see: 
 
