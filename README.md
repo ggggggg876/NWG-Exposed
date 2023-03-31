@@ -39,17 +39,17 @@ Jared George did The After Party podcast with Jason. He has a [YouTube channel](
 
 [Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents".  
 
-![](https://justice-initiative.net/wp-content/uploads/2023/03/SotW-1-300x46.png)  
+![](SotW-1.png)  
 
 There it is… "Westernkind". Scroll down and you'll see "White Well-Being" there alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. The videos are hosted on Odysee. We look at the [Odysee page](https://odysee.com/@School_of_the_West:b) to see: 
 
-![](https://justice-initiative.net/wp-content/uploads/2023/03/SotW-2-300x176.png)
+![](SotW-2.png)
 
 567 Uploads! Wow! In [one of these videos](https://odysee.com/@School_of_the_West:b/Onpage-Introduction:7) Brant explains to us that this is his site and that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". Am I expected to believe that Jason Köhne's YouTube channel that gets 1-3k views a video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 567 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. Not Believable! What the actual fuck is going on here?
 
 ### The Telegram
 
-These are exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. They offer regular training in the "Go-Free Method” ![](https://justice-initiative.net/wp-content/uploads/2023/03/Training-1-297x300.jpg) ![](https://justice-initiative.net/wp-content/uploads/2023/03/Training-2-300x158.jpg) Once you complete training, you're “Certified” ![](https://justice-initiative.net/wp-content/uploads/2023/03/Certified-1-300x143.jpg)![](https://justice-initiative.net/wp-content/uploads/2023/03/Certified-2-252x300.jpg) Here is them assigning homework. ![](https://justice-initiative.net/wp-content/uploads/2023/03/Homework-1-283x300.jpg) There are ongoing membership drives monthly. ![](https://justice-initiative.net/wp-content/uploads/2023/03/Membership-Drive-1-201x300.jpg)![](https://justice-initiative.net/wp-content/uploads/2023/03/Membership-Drive-2-300x292.jpg)![](https://justice-initiative.net/wp-content/uploads/2023/03/Membership-Drive-3-300x191.jpg) Here is a [written exam worksheet](https://justice-initiative.net/wp-content/uploads/2023/03/Written-GFP-Exam.pdf). Here is the [list of “Advanced Lexicon”](https://justice-initiative.net/wp-content/uploads/2023/03/Advanced-Lexicon.pdf). Normal people don’t act like this.
+These are exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. They offer regular training in the "Go-Free Method” ![](Training-1.jpg) ![](Training-2.jpg) Once you complete training, you're “Certified” ![](Certified-1.jpg)![](Certified-2.jpg) Here is them assigning homework. ![](Homework-1.jpg) There are ongoing membership drives monthly. ![](Membership-Drive-1.jpg)![](Membership-Drive-2.jpg)![](Membership-Drive-3.jpg) Here is a [written exam worksheet](Written-GFP-Exam.pdf). Here is the [list of “Advanced Lexicon”](Advanced-Lexicon.pdf). Normal people don’t act like this.
 
 ### The Book
 
