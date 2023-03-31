@@ -14,7 +14,9 @@ The first thing normal people will notice about Jason Köhne and his followers i
 
 ### The Clique
 
-This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking. ![](https://justice-initiative.net/wp-content/uploads/2023/03/Clique-256x300.png)
+This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking.
+
+![](https://justice-initiative.net/wp-content/uploads/2023/03/Clique-256x300.png)
 
 ### The Sites
 
@@ -35,8 +37,10 @@ Jared George did The After Party podcast with Jason. He has a [YouTube channel](
 
 ### School of the West
 
-[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents". 
+[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents".
+
 ![](https://justice-initiative.net/wp-content/uploads/2023/03/SotW-1-300x46.png) 
+
 There it is… "Westernkind". Scroll down and you'll see "White Well-Being" there alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. The videos are hosted on Odysee. We look at the [Odysee page](https://odysee.com/@School_of_the_West:b) to see: 
 
 ![](https://justice-initiative.net/wp-content/uploads/2023/03/SotW-2-300x176.png)
