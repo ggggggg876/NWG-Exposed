@@ -1,6 +1,8 @@
 # NWG-Exposed
 This website seeks to expose Jason Köhne (aka NoWhiteGuilt) and his clique. The NoWhiteGuilt network is vast and strange. All well-adjusted persons should be able to see the evidence and conclude that NoWhiteGuilt and his followers are bad actors.    
+
 These very well-done articles by Daily Rake do well to discredit Jason Köhne already. [1](https://dailyrake.ca/2021/12/08/white-while-peeing-part-1-the-overview/), [2](https://dailyrake.ca/2021/12/09/white-while-peeing-part-2-the-intro-in-depth/), [3](https://dailyrake.ca/2021/12/11/white-while-peeing-part-3-pf-meltdown/), [4](https://dailyrake.ca/2021/12/12/white-while-peeing-part-4-go-pee-pillows/), [5](https://dailyrake.ca/2021/12/13/white-while-peeing-part-5-go-pee/), [6](https://dailyrake.ca/2021/12/14/white-while-peeing-part-6-the-poem/), [7](https://dailyrake.ca/2021/12/16/white-while-peeing-part-7-the-business-cards/), [8](https://dailyrake.ca/2021/12/17/white-while-peeing-part-8-dont-talk-about-puppies/), [9](https://dailyrake.ca/2021/12/21/white-while-peeing-part-9-the-creepster/), [10](https://dailyrake.ca/2021/12/22/white-while-peeing-part-10-pissing-off-mark-collett/), [11](https://dailyrake.ca/2021/12/23/white-while-peeing-part-11-milk-the-youtube-lolcow/), Bonus [1](https://dailyrake.ca/2022/01/15/dr-shekelstein-humiliates-the-white-race-by-saturating-them-with-white-guilt-in-online-text-adventure/), [2](https://dailyrake.ca/2022/03/09/white-while-peeing-tranny-finds-jew-westman-and-converts-with-go-pee-story/).    
+
 A few things about NWG:
 
 *   NWG does not name the Jew.
