@@ -16,7 +16,7 @@ The first thing normal people will notice about Jason Köhne and his followers i
 
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking.
 
-![](https://justice-initiative.net/wp-content/uploads/2023/03/Clique-256x300.png)
+![](Clique.png)
 
 ### The Sites
 
