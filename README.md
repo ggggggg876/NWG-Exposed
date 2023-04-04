@@ -75,7 +75,7 @@ Here is them assigning homework.
 
 ![](Homework-1.jpg)
 
-There are ongoing membership drives monthly.
+There are ongoing monthly membership drives.
 
 ![](Membership-Drive-1.jpg)![](Membership-Drive-2.jpg)![](Membership-Drive-3.jpg)
 
