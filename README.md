@@ -20,7 +20,7 @@ Jason Köhne (NoWhiteGuilt) is primarily a [https://www.youtube.com/c/NoWhiteGui
 
 His YouTube channel has 24k subscribers. That is a relatively small channel. For context: The biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views. Something to keep in mind as we go further. How many people are really into this stuff?
 
-Jason Köhne was born and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
+Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
 
 ![image](https://user-images.githubusercontent.com/129471052/229685380-00901910-86fe-482d-a5a0-3d90acd682ca.png)
 
