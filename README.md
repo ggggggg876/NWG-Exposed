@@ -97,7 +97,7 @@ What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult ce
 *   NWG is not harmless.
 *   NWG is a cult leader and a threat.
 
-All true pro-White advocates need to stay far away from NWG and his clique. Projects that have associated with NWG should be viewed with extreme skepticism. As always, protect yourself and your information, especially around NWG.
+All true pro-White advocates need to stay far away from NWG and his clique. Projects that have associated with NWG should be viewed with extreme skepticism. As always, protect yourself and your personal information, especially around NWG.
 
 <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
 
