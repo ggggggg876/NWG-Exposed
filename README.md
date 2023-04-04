@@ -48,7 +48,7 @@ The White People's Press focuses on non-political content, which isn't inherentl
 
 ### School of the West
 
-[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents".  
+[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents" and another project in the NWG network.  
 
 ![](SotW-1.png)  
 
