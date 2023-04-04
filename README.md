@@ -14,8 +14,6 @@ A few things about Jason Köhne and the NWG community:
 
 These are not things pro-White people do.  
 
-The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", and “Meme-Pathogen” are. These words identify when you're dealing with an NWG entity. The proliferation of strange MK-Ultra words is a tactic used by nefarious government organizations - think grassy "knoll". Nobody talks like this. It's weird and it makes you look weird to other people.
-
 ### Jason Köhne and His The Clique
 
 Jason Köhne (NoWhiteGuilt) is primarily a [https://www.youtube.com/c/NoWhiteGuilt/videos](YouTube channel) personality. His pro-white YouTube channel was started in 2014 and has suspiciously been able to survive YouTube's aggressive purging of pro-white content this entire time.
@@ -29,6 +27,8 @@ Jason Köhne was born and still lives in the D.C. area. It has been confirmed th
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking.
 
 ![](Clique.png)
+
+The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", and “Meme-Pathogen” are. These words identify when you're dealing with an NWG entity. The proliferation of strange MK-Ultra words is a tactic used by nefarious government organizations - think grassy "knoll". Nobody talks like this. It's weird and it makes you look weird to other people.
 
 ### The Sites
 
