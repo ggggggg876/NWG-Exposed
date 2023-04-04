@@ -63,11 +63,11 @@ There it is… "Westernkind". Scroll down and you'll see "White Well-Being" alon
 
 These are exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. It has about 80 members. 
 
-They offer regular training in the "Go-Free Method” 
+They offer regular training in the "Go-Free Method”.
 
 ![](Training-1.jpg) ![](Training-2.jpg)
 
-Once you complete training, you're “Certified”
+Once you complete training, you're “Certified”.
 
 ![](Certified-1.jpg)![](Certified-2.jpg)
 
