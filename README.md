@@ -22,8 +22,6 @@ His YouTube channel has 24k subscribers. That is a relatively small channel. For
 
 Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
 
-![image](https://user-images.githubusercontent.com/129471052/229685380-00901910-86fe-482d-a5a0-3d90acd682ca.png)
-
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking.
 
 ![](Clique.png)
