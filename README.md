@@ -3,7 +3,7 @@ This website seeks to expose Jason Köhne (aka NoWhiteGuilt) and his clique. The
 
 These very well-done articles by Daily Rake do well to discredit Jason Köhne already. [1](https://dailyrake.ca/2021/12/08/white-while-peeing-part-1-the-overview/), [2](https://dailyrake.ca/2021/12/09/white-while-peeing-part-2-the-intro-in-depth/), [3](https://dailyrake.ca/2021/12/11/white-while-peeing-part-3-pf-meltdown/), [4](https://dailyrake.ca/2021/12/12/white-while-peeing-part-4-go-pee-pillows/), [5](https://dailyrake.ca/2021/12/13/white-while-peeing-part-5-go-pee/), [6](https://dailyrake.ca/2021/12/14/white-while-peeing-part-6-the-poem/), [7](https://dailyrake.ca/2021/12/16/white-while-peeing-part-7-the-business-cards/), [8](https://dailyrake.ca/2021/12/17/white-while-peeing-part-8-dont-talk-about-puppies/), [9](https://dailyrake.ca/2021/12/21/white-while-peeing-part-9-the-creepster/), [10](https://dailyrake.ca/2021/12/22/white-while-peeing-part-10-pissing-off-mark-collett/), [11](https://dailyrake.ca/2021/12/23/white-while-peeing-part-11-milk-the-youtube-lolcow/), Bonus [1](https://dailyrake.ca/2022/01/15/dr-shekelstein-humiliates-the-white-race-by-saturating-them-with-white-guilt-in-online-text-adventure/), [2](https://dailyrake.ca/2022/03/09/white-while-peeing-tranny-finds-jew-westman-and-converts-with-go-pee-story/).    
 
-A few things about NWG:
+A few things about NWG and Jason Köhne:
 
 *   NWG does not name the Jew.
 *   NWG does not advocate political action.
@@ -41,10 +41,6 @@ Jared George did The After Party podcast with Jason. He has a [YouTube channel](
 
 The White People Press focuses on non-political content, which isn’t inherently bad, but it is notable that it matches NWG's dismissal of political action. Not much is known about the editor in chief Tony Vermont other than the fact that his only public appearance was on NWG’s [podcast](https://www.spreaker.com/user/nowhiteguilt/tap-after-hours-no-white-guilt-the-great_1). It seems very apparent that NWG and his circle have an enormous amount of influence at The White People Press if they don’t outright control it. 
 
-There are good people not associated with NWG who appear here and there in White People Press publications. But if you pay attention the same names keep popping up throughout the White People Press publications.
-
-It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
-
 ### School of the West
 
 [Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents".  
@@ -55,7 +51,7 @@ There it is… "Westernkind". Scroll down and you'll see "White Well-Being" alon
 
 ![](SotW-2.png)
 
-567 Uploads! Wow! In [one of these videos](https://odysee.com/@School_of_the_West:b/Onpage-Introduction:7) Brant explains to us that this is his site and that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". Am I expected to believe that Jason Köhne's YouTube channel that gets 1-3k views a video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 567 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. Not Believable! What the actual fuck is going on here?
+567 Uploads! Wow! In [one of these videos](https://odysee.com/@School_of_the_West:b/Onpage-Introduction:7) Brant explains to us that this is his site and that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". Am I expected to believe that Jason Köhne's YouTube channel that gets 1-3k views a video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 567 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. Not Believable!
 
 ### The Telegram
 
@@ -95,10 +91,9 @@ What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult ce
 *   NWG is not harmless.
 *   NWG is a cult leader and a threat.
 
-All true pro-white advocates need to stay far away from NWG and anything that is associated with him. Most normal people are already repulsed by NWG's dumb ideology, but some projects like the The White People's Press do seem more legitimate. They are not. Do not give them your information and do not give them money. Below is a list of other brands and sites associated with NWG and possibly compromised.
+All true pro-white advocates need to stay far away from NWG and anything that is associated with him. Most normal people are already repulsed by NWG's dumb ideology, but some projects like the The White People's Press do seem more legitimate. They are not. Do not give them your information and do not give them money.
 
-The White People Press  
-whitedate.net  
-whitedeal.net  
-whitechild.net  
-WhiteArtCollective  
+
+
+
+Contact this site with more information or corrections: nowhiteguiltexposed@protonmail.com
