@@ -16,7 +16,15 @@ These are not things pro-White people do.
 
 The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", and “Meme-Pathogen” are. These words identify when you're dealing with an NWG entity. The proliferation of strange MK-Ultra words is a tactic used by nefarious government organizations - think grassy "knoll". Nobody talks like this. It's weird and it makes you look weird to other people.
 
-### The Clique
+### Jason Köhne and His The Clique
+
+Jason Köhne (NoWhiteGuilt) is primarily a [https://www.youtube.com/c/NoWhiteGuilt/videos](YouTube channel) personality. His pro-white YouTube channel was started in 2014 and has suspiciously been able to survive YouTube's aggressive purging of pro-white content this entire time.
+
+His YouTube channel has 24k subscribers. That is a relatively small channel. For context: The biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views. Something to keep in mind as we go further. How many people are really into this stuff?
+
+Jason Köhne was born and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
+
+![image](https://user-images.githubusercontent.com/129471052/229685380-00901910-86fe-482d-a5a0-3d90acd682ca.png)
 
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking.
 
@@ -26,7 +34,7 @@ This is a picture of at least some of the NWG inner circle. They are known to at
 
 This guy has a lot going on. Let’s go through the sites associated with Jason Köhne and the NWG network:
 
-*   [https://www.youtube.com/c/NoWhiteGuilt/videos](https://www.youtube.com/c/NoWhiteGuilt/videos): Remember, NWG is primarily a YouTube channel/personality. His Go Free book expands on his rhetorical method. His YouTube channel -his main thing- has 24k subscribers. That is a relatively small channel. For context: The biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views. Something to keep in mind as we go further. How many people are really into this stuff? 
+*   [https://www.youtube.com/c/NoWhiteGuilt/videos](https://www.youtube.com/c/NoWhiteGuilt/videos): Jason Köhne's YouTube channel.
 *   [Nowhiteguilt.org](http://Nowhiteguilt.org): His main page. [/links](https://www.nowhiteguilt.org/links/) for all his social media and more.
 *   [Nowhiteguiltcollectibles.com](http://nowhiteguiltcollectibles.com): His merch store.
 *   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
@@ -85,13 +93,13 @@ To explain the behavior that we find in the telegram chats we need only turn to 
 
 ### Conclusion
 
-What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is a well-funded government op to off-ramp and contain potential white nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources and manpower, when he should have very little, has me leaning toward the latter. However, it doesn’t seem to have taken off as well as they hoped. Whatever it is, its fucking weird, its well-funded, and dangerous.
+What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is a well-funded operation to off-ramp and contain potential white nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, has me leaning toward the latter. However, it doesn’t seem to have taken off as well as they hoped. Whatever it is, its fucking weird, its well-funded, and dangerous.
 
 *   NWG does not care about white people.
 *   NWG is not harmless.
 *   NWG is a cult leader and a threat.
 
-All true pro-white advocates need to stay far away from NWG and his clique. Projects that have assocated with NWG should be viewed with extreme skepicism. As always, protect yourself and your information, especially around NWG.
+All true pro-white advocates need to stay far away from NWG and his clique. Projects that have associated with NWG should be viewed with extreme skepticism. As always, protect yourself and your information, especially around NWG.
 
 <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
 
