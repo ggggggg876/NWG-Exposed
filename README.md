@@ -33,7 +33,7 @@ The first thing normal people will notice about Jason Köhne and his followers i
 This guy has a lot going on. Let’s go through the sites associated with Jason Köhne and the NWG network:
 
 *   [https://www.youtube.com/c/NoWhiteGuilt/videos](https://www.youtube.com/c/NoWhiteGuilt/videos): Jason Köhne's YouTube channel.
-*   [Nowhiteguilt.org](http://Nowhiteguilt.org): His main page. [/links](https://www.nowhiteguilt.org/links/) for all his social media and more.
+*   [Nowhiteguilt.org](http://Nowhiteguilt.org): His personal website. [/links](https://www.nowhiteguilt.org/links/) for all his social media and more.
 *   [Nowhiteguiltcollectibles.com](http://nowhiteguiltcollectibles.com): His merch store.
 *   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
 *   [Westernkind.com](http://westernkind.com): A website obviously associated with NWG that links to his merch store.
