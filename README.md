@@ -78,6 +78,8 @@ There are ongoing monthly membership drives.
 
 ![](Membership-Drive-1.jpg)![](Membership-Drive-2.jpg)![](Membership-Drive-3.jpg)
 
+Here is a [vocabulary test](Go-Free-Vocabulary-A1.pdf).
+
 Here is a [written exam worksheet](Written-GFP-Exam.pdf).
 
 Here is the [list of “Advanced Lexicon”](Advanced-Lexicon.pdf). 
