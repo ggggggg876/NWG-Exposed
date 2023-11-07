@@ -21,43 +21,46 @@ His YouTube channel has 25k subscribers. That's a relatively small channel. For 
 
 Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
 
-This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking.
+This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking. 
 
 ![](Clique.png)
 
-The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", and “Meme-Pathogen” are. These words identify when you're dealing with an NWG entity. The proliferation of strange MK-Ultra words is a tactic used by nefarious government organizations - think grassy "knoll". Nobody talks like this. It's weird and it makes you look weird to other people.
+The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", and “Meme-Pathogen” are. These words identify when you're dealing with an NWG entity. The proliferation of odd MK-Ultra words is a tactic used by nefarious government organizations - think grassy "knoll". Nobody talks like this. It's weird and it makes you look weird to other people.
 
 ### The Sites
 
-This guy has a lot going on. Let’s go through some of the sites associated with Jason Köhne and the NWG network:
+The following are sites associated with Jason Köhne and the NWG:
 
 *   [https://www.youtube.com/c/NoWhiteGuilt/videos](https://www.youtube.com/c/NoWhiteGuilt/videos): Jason Köhne's YouTube channel.
 *   [Nowhiteguilt.org](http://Nowhiteguilt.org): His personal website. [/links](https://www.nowhiteguilt.org/links/) for all his social media and more.
 *   [spreaker.com/show/going-free]([http://Nowhiteguilt.org](https://www.spreaker.com/show/going-free)): His Spreaker Channel where you can see all his past show content.
 *   [Nowhiteguiltcollectibles.com](http://nowhiteguiltcollectibles.com): His merch store.
-*   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
-*   [Westernkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
+*   [Wsternkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
 *   [Buygofree.com](http://Buygofree.com): goes to his book listing on Amazon.
-*   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
-*   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
 
-### Jared George and The White People's Press
+Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@SouthernDingo:7/officernwg:b) is a video timeline of NWG community activities by inner circle member ______. The following sites are NWG community projects:
+
+*   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
+*   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
+*   https://www.whitedate.net/
+*   https://whitedeal.net/
+*   https://whitechild.net/
+*   https://www.whiteartcollective.com/
+*   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
+
+### The NWG Network - Jared George and The White People's Press
 
 Jared George did The After Party podcast with Jason. He has a [YouTube channel](https://www.youtube.com/channel/UCQecLi2rXNQDj2QcZjsuK1g) and a [site for his music](http://thegreatorder.com) - both harmless. Jason comments on his videos. They're obviously very good friends. Jared George is also very involved at [The White People's Press](http://whitepeoplepress.com). The book “Folk” was essentially his project. He is credited as the sole producer and of the ten authors in the book, three, Jason Köhne, Jared George, and Lovely Porridge, are in the NWG inner circle. In the White People Quarterly Vol. 1 No. 4 the first article in the magazine is by Jared about a video contest he hosted with Lovely Porridge at [lastmessagetothewest.com](http://lastmessagetothewest.com). Jason Köhne submitted an entry in the contest. Jared George also contributed a poem in the same issue. Jason Köhne likes [poetry](https://www.nowhiteguilt.org/poetry-short-story-readings/).. He reads it on [his channel](https://www.youtube.com/playlist?list=PLUWNvBwlnr7loj_eApsHFRHDKPFhAAAD3) and, there’s quite a lot of it in the White People Quarterly.  
 
 The White People's Press focuses on non-political content, which isn't inherently bad, but it is notable that it matches NWG's dismissal of political action. Not much is known about the editor-in-chief Tony Vermont other than the fact that his only public appearance was on NWG’s [podcast](https://www.spreaker.com/user/nowhiteguilt/tap-after-hours-no-white-guilt-the-great_1). It seems very apparent that NWG and his circle have an enormous amount of influence at The White People's Press if they don’t outright control it. 
 
-### School of the West
+### The NWG Network - School of the West
 
 [Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents" and another project in the NWG network.  
 
 ![](SotW-1.png)  
 
-There it is… "Westernkind". Scroll down and you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. The videos are hosted on Odysee. We look at the [Odysee page](https://odysee.com/@School_of_the_West:b) to see: 
-
-![](SotW-2.png)
-
-584 Uploads. In [one of these videos](https://odysee.com/@School_of_the_West:b/Onpage-Introduction:7) Brant explains to us that this is his site and that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. What is going on here?
+On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in this article by a NWG follower that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads]([https://odysee.com/@School_of_the_West:b](https://odysee.com/@School_of_the_West:b?view=about)). Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. What is going on here?
 
 ### The Telegram
 
@@ -85,13 +88,17 @@ Here is a [written exam worksheet](Written-GFP-Exam.pdf).
 
 Here is the [list of “Advanced Lexicon”](Advanced-Lexicon.pdf). 
 
-And more [lexicon”](https://www.nowhiteguilt.org/wp-content/uploads/LexiconTranslation.pdf). 
+And more [lexicon](https://www.nowhiteguilt.org/wp-content/uploads/LexiconTranslation.pdf). 
+
+Here is a video of Jason telling you to hand out these cards to random people while telling them "I love you".
 
 Normal people don’t act like this.
 
 ### The Book
 
 To explain the behavior that we find in the telegram chats, we need only turn to Köhne’s book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](http://Buygofree.com)”. Jason’s book reads how you would imagine a Scientology handbook on how to remove your hidden Thetans would. An apt analogy because you merely need to replace the concept of Thetan with “meme-pathogen” and that’s pretty much it. We read “I have developed the Archetype Alignment Protocol (AAP) —the process you will use to align yourself with the archetype of Westernkind —the process you will use to Go Free. Going Free is the only path to purifying yourself of the deep-seated toxic beliefs undermining your life. By way of this work, you will come to understand the disease inflicted upon us, a disease I call white-noir. You will be given the tools to cure yourself by identifying, treating, and immunizing yourself against meme-pathogens (MPs) that cause white-noir. As you Go Free, you will awaken the ancient and suppressed potential of Westernkind within you. You will thereby increase your potential-to-power (PTP).” Yep, standard cult stuff. Like some other cults too, there are “degrees” (levels) to achieve, and, needless to say, the vocabulary goes off the rails.
+
+
 
 ### Conclusion
 
