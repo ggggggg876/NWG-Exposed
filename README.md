@@ -17,7 +17,7 @@ These are not things pro-White people do.
 
 Jason Köhne (NoWhiteGuilt) is primarily a [YouTube channel](https://www.youtube.com/c/NoWhiteGuilt/videos) personality. His 'pro-White' YouTube channel was started in 2014 and has suspiciously been able to survive YouTube's aggressive purging of pro-White content this entire time.
 
-His YouTube channel has 24k subscribers. That's a relatively small channel. For context: the biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views.
+His YouTube channel has 25k subscribers. That's a relatively small channel. For context: the biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views.
 
 Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
 
@@ -29,20 +29,21 @@ The first thing normal people will notice about Jason Köhne and his followers i
 
 ### The Sites
 
-This guy has a lot going on. Let’s go through the sites associated with Jason Köhne and the NWG network:
+This guy has a lot going on. Let’s go through some of the sites associated with Jason Köhne and the NWG network:
 
 *   [https://www.youtube.com/c/NoWhiteGuilt/videos](https://www.youtube.com/c/NoWhiteGuilt/videos): Jason Köhne's YouTube channel.
 *   [Nowhiteguilt.org](http://Nowhiteguilt.org): His personal website. [/links](https://www.nowhiteguilt.org/links/) for all his social media and more.
+*   [spreaker.com/show/going-free]([http://Nowhiteguilt.org](https://www.spreaker.com/show/going-free)): His Spreaker Channel where you can see all his past show content.
 *   [Nowhiteguiltcollectibles.com](http://nowhiteguiltcollectibles.com): His merch store.
 *   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
-*   [Westernkind.com](http://westernkind.com): A website obviously associated with NWG that links to his merch store.
+*   [Westernkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
 *   [Buygofree.com](http://Buygofree.com): goes to his book listing on Amazon.
-*   Theafterparty.tv: was a domain owned by Jason. It tries to download malware now, but it was a podcast Jason did with someone named Jared George (he's important). Episodes can be listened to [here](https://www.spreaker.com/user/nowhiteguilt).
 *   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
+*   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
 
 ### Jared George and The White People's Press
 
-Jared George did The After Party podcast with Jason. He has a [YouTube channel](https://www.youtube.com/channel/UCQecLi2rXNQDj2QcZjsuK1g) and a [site for his music](http://thegreatorder.com) - both harmless. Jason comments on his videos. They're obviously very good friends. Jared George is also very involved at [The White People's Press](http://whitepeoplepress.com). The book “Folk” was essentially his project. He is credited as the sole producer and of the ten authors in the book, three, Jason Köhne, Jared George, and Lovely Porridge, are in the NWG inner circle. In the White People Quarterly Vol. 1 No. 4 the first article in the magazine is by Jared about a video contest he hosted with Lovely Porridge at [lastmessagetothewest.com](http://lastmessagetothewest.com). Jason Köhne submitted an entry in the contest. Jared George also contributed a poem in the same issue. Jason Köhne likes poetry. He reads it on [his channel](https://www.youtube.com/playlist?list=PLUWNvBwlnr7loj_eApsHFRHDKPFhAAAD3) and, there’s quite a lot of it in the White People Quarterly.  
+Jared George did The After Party podcast with Jason. He has a [YouTube channel](https://www.youtube.com/channel/UCQecLi2rXNQDj2QcZjsuK1g) and a [site for his music](http://thegreatorder.com) - both harmless. Jason comments on his videos. They're obviously very good friends. Jared George is also very involved at [The White People's Press](http://whitepeoplepress.com). The book “Folk” was essentially his project. He is credited as the sole producer and of the ten authors in the book, three, Jason Köhne, Jared George, and Lovely Porridge, are in the NWG inner circle. In the White People Quarterly Vol. 1 No. 4 the first article in the magazine is by Jared about a video contest he hosted with Lovely Porridge at [lastmessagetothewest.com](http://lastmessagetothewest.com). Jason Köhne submitted an entry in the contest. Jared George also contributed a poem in the same issue. Jason Köhne likes [poetry](https://www.nowhiteguilt.org/poetry-short-story-readings/).. He reads it on [his channel](https://www.youtube.com/playlist?list=PLUWNvBwlnr7loj_eApsHFRHDKPFhAAAD3) and, there’s quite a lot of it in the White People Quarterly.  
 
 The White People's Press focuses on non-political content, which isn't inherently bad, but it is notable that it matches NWG's dismissal of political action. Not much is known about the editor-in-chief Tony Vermont other than the fact that his only public appearance was on NWG’s [podcast](https://www.spreaker.com/user/nowhiteguilt/tap-after-hours-no-white-guilt-the-great_1). It seems very apparent that NWG and his circle have an enormous amount of influence at The White People's Press if they don’t outright control it. 
 
@@ -56,7 +57,7 @@ There it is… "Westernkind". Scroll down and you'll see "White Well-Being" alon
 
 ![](SotW-2.png)
 
-567 Uploads! Wow! In [one of these videos](https://odysee.com/@School_of_the_West:b/Onpage-Introduction:7) Brant explains to us that this is his site and that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 567 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. Not Believable!
+584 Uploads. In [one of these videos](https://odysee.com/@School_of_the_West:b/Onpage-Introduction:7) Brant explains to us that this is his site and that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. What is going on here?
 
 ### The Telegram
 
@@ -83,6 +84,8 @@ Here is a [vocabulary test](Go-Free-Vocabulary-A1.pdf).
 Here is a [written exam worksheet](Written-GFP-Exam.pdf).
 
 Here is the [list of “Advanced Lexicon”](Advanced-Lexicon.pdf). 
+
+And more [lexicon”](https://www.nowhiteguilt.org/wp-content/uploads/LexiconTranslation.pdf). 
 
 Normal people don’t act like this.
 
