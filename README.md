@@ -120,7 +120,7 @@ Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per v
 
 ### Conclusion
 
-What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is a well-funded operation to off-ramp and contain potential white nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, gives credence toward the latter. However, it doesn’t seem to have taken off as well as they hoped. Whatever it is, it's weird and it's dangerous.
+What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is an operation to off-ramp and contain potential White nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, gives credence toward the latter. Whatever it is, it's weird and it's dangerous.
 
 *   NWG does not care about White people.
 *   NWG is not harmless.
