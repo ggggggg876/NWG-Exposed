@@ -25,7 +25,7 @@ This is a picture of at least some of the NWG inner circle. They are known to at
 
 ![](Clique.png)
 
-The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", “Meme-Pathogen” and [these others](https://www.nowhiteguilt.org/wp-content/uploads/LexiconTranslation.pdf) are. These words identify when you're dealing with an NWG entity. Having five additional made-up words for the concept of 'White people' is not helping. The creation of unnecessary jargon seems only to have the possibly intentional purpose of insulating the group from outsiders. Its weird and it makes NWG followers look weird to other people because it seems like they are making up words (which they are).
+The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", “Meme-Pathogen” and [these others](/Advanced-Lexicon.pdf) are. These words identify when you're dealing with an NWG entity. Having five additional made-up words for the concept of 'White people' is not helping. The creation of unnecessary jargon seems only to have the possibly intentional purpose of insulating the group from outsiders. Its weird and it makes NWG followers look weird to other people because it seems like they are making up words (which they are).
 
 ### The Sites
 
@@ -95,8 +95,6 @@ There are ongoing monthly membership drives.
 Here is a [vocabulary test](Go-Free-Vocabulary-A1.pdf).
 
 Here is a [written exam worksheet](Written-GFP-Exam.pdf).
-
-Here is the [list of “Advanced Lexicon”](Advanced-Lexicon.pdf). 
 
 Here is a video of Jason telling you to hand out these cards to random people while telling them "I love you".
 
