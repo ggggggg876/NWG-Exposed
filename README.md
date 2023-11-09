@@ -5,7 +5,7 @@ These very well-done articles by Daily Rake do well to discredit Jason Köhne al
 A few things about Jason Köhne and the NWG community:
 
 *   NWG does not name the Jew.
-*   NWG does not advocate political action.
+*   NWG does not advocate for political action.
 *   NWG accepts transsexuals.
 *   Jason Köhne brings his pet tranny to WN events.
 *   Jason Köhne has advocated for the [doxing of PF members](https://dailyrake.ca/2021/12/11/white-while-peeing-part-3-pf-meltdown/).
