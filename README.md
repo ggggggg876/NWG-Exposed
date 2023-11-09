@@ -92,11 +92,12 @@ Normal people don’t act like this.
 
 ### The NWG Network
 
-Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@SouthernDingo:7/officernwg:b) is a video timeline of NWG community activities by inner circle member Final Blossom. The following sites are NWG community projects:
+Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@Finalblossom:3/Go-Free-Community---Brief-Timeline:8) is a video timeline of NWG community activities by inner circle member Final Blossom. The following sites are NWG community projects:
 
-*   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
-*   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
-*   https://www.whitedate.net/
+*   [Westernkind Games](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
+*   [Whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
+*   [Studio DynoStorm](https://studiodynostorm.com/): A video game studio
+*   https://www.whitedate.net/: A Whites only dating website
 *   https://whitedeal.net/
 *   https://whitechild.net/
 *   https://www.whiteartcollective.com/
