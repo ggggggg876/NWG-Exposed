@@ -25,7 +25,7 @@ This is a picture of at least some of the NWG inner circle. They are known to at
 
 ![](Clique.png)
 
-The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", and “Meme-Pathogen” are. These words identify when you're dealing with an NWG entity. The proliferation of odd MK-Ultra words is a tactic used by nefarious government organizations - think grassy "knoll". Nobody talks like this. It's weird and it makes you look weird to other people.
+The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", “Meme-Pathogen” and [these others](https://www.nowhiteguilt.org/wp-content/uploads/LexiconTranslation.pdf) are. These words identify when you're dealing with an NWG entity. Having five additional made-up words for the concept of 'White people' is not helping. The creation of unnecessary jargon seems only to have the possibly intentional purpose of insulating the group from outsiders. Its weird and it makes NWG followers look weird to other people because it seems like they are making up words (which they are).
 
 ### The Sites
 
@@ -88,27 +88,43 @@ Here is a [written exam worksheet](Written-GFP-Exam.pdf).
 
 Here is the [list of “Advanced Lexicon”](Advanced-Lexicon.pdf). 
 
-And more [lexicon](https://www.nowhiteguilt.org/wp-content/uploads/LexiconTranslation.pdf). 
-
 Here is a video of Jason telling you to hand out these cards to random people while telling them "I love you".
 
 Normal people don’t act like this.
 
 ### The Book
 
-To explain the behavior that we find in the telegram chats, we need only turn to Köhne’s book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](http://Buygofree.com)”. Jason’s book reads how you would imagine a Scientology handbook on how to remove your hidden Thetans would. An apt analogy because you merely need to replace the concept of Thetan with “meme-pathogen” and that’s pretty much it. We read “I have developed the Archetype Alignment Protocol (AAP) —the process you will use to align yourself with the archetype of Westernkind —the process you will use to Go Free. Going Free is the only path to purifying yourself of the deep-seated toxic beliefs undermining your life. By way of this work, you will come to understand the disease inflicted upon us, a disease I call white-noir. You will be given the tools to cure yourself by identifying, treating, and immunizing yourself against meme-pathogens (MPs) that cause white-noir. As you Go Free, you will awaken the ancient and suppressed potential of Westernkind within you. You will thereby increase your potential-to-power (PTP).” Yep, standard cult stuff. Like some other cults too, there are “degrees” (levels) to achieve, and, needless to say, the vocabulary goes off the rails.
+Jason's book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](https://ia904707.us.archive.org/16/items/naggers.net/Go%20Free%20-%20A%20Guide%20To%20Aligning%20With%20The%20Archetype%20of%20Westernkind.pdf)” - the holy text of the NWG community - is essentially a self-help book to rid yourself of any negative thoughts you may have about being White (meme-pathogens), and becoming an advocate for White wellbeing according to Jason's view. The book fails on both of these fronts. First, anyone genuinely having negative self-talk regarding their White identity would be better off with trusted therapudic methods like CBT rather than the "meme-curatives" being offered by Jason. Secondly, becoming a White Wellbeing advocate in the NWG vain, is ineffective by design as it does not challenge the real political systems oppressing White peoples, instead settling for continous soul-searching and alienating of others. We read: 
 
+“I have developed the Archetype Alignment Protocol (AAP) —the process you will use to align yourself with the archetype of Westernkind —the process you will use to Go Free. Going Free is the only path to purifying yourself of the deep-seated toxic beliefs undermining your life. By way of this work, you will come to understand the disease inflicted upon us, a disease I call white-noir. You will be given the tools to cure yourself by identifying, treating, and immunizing yourself against meme-pathogens (MPs) that cause white-noir. As you Go Free, you will awaken the ancient and suppressed potential of Westernkind within you. You will thereby increase your potential-to-power (PTP).”
 
+It reads like a cult handbook because, to a degree, it is. Jason takes some concepts that are true: White political oppression & antiWhite narratives in the media; and feelings that are valid: internal discord regareding negative beliefs on your own White identity; and takes advantage of people by offering an all-in-one "solution" and community. The "solution" is not a solution because "Going Free" is not a real theraputic method or anything based in science. Its made up by a correctional officer in Virginia. Like other cults, it is focused on an amateur's made up self-help system with levels (degrees), and a ready-made community whom are the only ones who understand you. 
+
+"It is important for you to understand that the
+Regime will dismiss this curative process because antiwhites have a
+vested interest in doing so. As with all of their attacks on Westernkind,
+wherein they MIS pretexts for their antiwhite jealousy, envy, and hatred,
+they will MIS pretexts to object to Going Free."
+
+Real therapy is about rehabilitation, not creating an perpetual hugbox. Real pro-White Advocacy not a self-help program. It is a political movement with specific political goals. When it comes to cults, sometimes its hard to explain but you know it when you see it. And this is definately it.
+
+Some choice quotes from the Go Free book:
+
+"You are white positive. Anyone who disagrees with you is white negative. You serve White Wellbeing . Anyone who disagrees with you serves white illbeing."
+
+"We, as white men and women, do not have enemies; we have one enemy.
+What group of people are our enemy? Antiwhites .
+Do not divide those who make themselves our enemy into enemies. Do not call them by the names of their taking: Marxists, cultural Marxists, economic Marxists, liberals, globalists, progressives, feminists (first wave, second wave, third wave), Chicano nationalists, black nationalists, neocons, social justice warriors and so on—they all become antiwhites whenever they cause, seek or support the harm of Westernkind. (...) Moreover, do not say white antiwhites , black antiwhites , or Jewish antiwhites etc. unless clarity requires it. And again, return to antiwhite as soon as possible."
 
 ### Conclusion
 
-What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is a well-funded operation to off-ramp and contain potential white nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, gives credence toward the latter. However, it doesn’t seem to have taken off as well as they hoped. Whatever it is, it's fucking weird, it's well-funded, and it's dangerous.
+What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is a well-funded operation to off-ramp and contain potential white nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, gives credence toward the latter. However, it doesn’t seem to have taken off as well as they hoped. Whatever it is, it's weird and it's dangerous.
 
 *   NWG does not care about White people.
 *   NWG is not harmless.
 *   NWG is a cult leader and a threat.
 
-All true pro-White advocates need to stay far away from NWG and his clique. Projects that have associated with NWG should be viewed with extreme skepticism. As always, protect yourself and your personal information, especially around NWG.
+There is no advantage to associating with Jason Köhne or the NWG community. All true pro-White advocates need to stay far away from NWG and his clique. Projects that have associated with NWG should be viewed with extreme skepticism. As always, protect yourself and your personal information, especially around NWG.
 
 <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
 
