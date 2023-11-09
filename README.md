@@ -19,13 +19,13 @@ Jason Köhne (NoWhiteGuilt) is primarily a [YouTube](https://www.youtube.com/c/N
 
 His YouTube channel has 25k subscribers. That's a relatively small channel. For context: the biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views.
 
-Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
+Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. It's unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
 
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking. 
 
 ![](Clique.png)
 
-The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", “Meme-Pathogen” and [these others](/Advanced-Lexicon.pdf) are. These words identify when you're dealing with an NWG entity. Having five additional made-up words for the concept of 'White people' is not helping. The creation of unnecessary jargon seems only to have the possibly intentional purpose of insulating the group from outsiders. Its weird and it makes NWG followers look weird to other people because it seems like they are making up words (which they are).
+The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", “Meme-Pathogen” and [these others](/Advanced-Lexicon.pdf) are. These words identify when you're dealing with an NWG entity. Having five additional made-up words for the concept of 'White people' is not helping. The creation of unnecessary jargon seems only to have the possibly intentional purpose of insulating the group from outsiders. It's weird and it makes NWG followers look weird to other people because it seems like they are making up words (which they are).
 
 ### The Sites
 
@@ -40,15 +40,15 @@ The following are sites associated with Jason Köhne and the NWG:
 
 ### The Book
 
-Jason's book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](https://ia904707.us.archive.org/16/items/naggers.net/Go%20Free%20-%20A%20Guide%20To%20Aligning%20With%20The%20Archetype%20of%20Westernkind.pdf)” - the holy text of the NWG community - is essentially a self-help book to rid yourself of any negative thoughts you may have about being White (meme-pathogens), and becoming an advocate for White wellbeing according to Jason's view. The book fails on both of these fronts. First, anyone genuinely having negative self-talk regarding their White identity would be better off with trusted therapudic methods like CBT rather than the "meme-curatives" being offered by Jason. Secondly, becoming a White Wellbeing advocate in the NWG fashion, is ineffective by design as it does not challenge the real political systems oppressing White peoples, instead settling for continous soul-searching and alienating of others. We read: 
+Jason's book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](https://ia904707.us.archive.org/16/items/naggers.net/Go%20Free%20-%20A%20Guide%20To%20Aligning%20With%20The%20Archetype%20of%20Westernkind.pdf)” - the holy text of the NWG community - is essentially a self-help book to rid yourself of any negative thoughts you may have about being White (meme-pathogens), and becoming an advocate for White wellbeing according to Jason's view. The book fails on both of these fronts. First, anyone genuinely having negative self-talk regarding their White identity would be better off with trusted therapeutic methods like CBT rather than the "meme-curatives" being offered by Jason. Secondly, becoming a White Wellbeing advocate in the NWG fashion, is ineffective by design as it does not challenge the real political systems oppressing White peoples, instead settling for continuous soul-searching and alienating of others. We read: 
 
 “I have developed the Archetype Alignment Protocol (AAP) —the process you will use to align yourself with the archetype of Westernkind —the process you will use to Go Free. Going Free is the only path to purifying yourself of the deep-seated toxic beliefs undermining your life. By way of this work, you will come to understand the disease inflicted upon us, a disease I call white-noir. You will be given the tools to cure yourself by identifying, treating, and immunizing yourself against meme-pathogens (MPs) that cause white-noir. As you Go Free, you will awaken the ancient and suppressed potential of Westernkind within you. You will thereby increase your potential-to-power (PTP).”
 
-It reads like a cult handbook because, to a degree, it is. Jason takes some concepts that are true: White political oppression & antiWhite narratives in the media; and feelings that are valid: internal discord regareding negative beliefs on your own White identity; and takes advantage of people by offering an all-in-one "solution" and community. The "solution" is not a solution because "Going Free" is not a real theraputic method or anything based in science. Its made up by a correctional officer in Virginia. Like other cults, it is focused on an amateur's made up self-help system with levels (degrees), and a ready-made community whom are the only ones who understand you. 
+It reads like a cult handbook because, to a degree, it is. Jason takes some concepts that are true: White political oppression & antiWhite narratives in the media; and feelings that are valid: internal discord regarding negative beliefs on your own White identity; and takes advantage of people by offering an all-in-one "solution" and community. The "solution" is not a solution because "Going Free" is not a real theraputic method or anything based in science. It's made up by a correctional officer in Virginia. Like other cults, it is focused on an amateur's made-up self-help system with levels (degrees), and a ready-made community whom are the only ones who understand you. 
 
 "It is important for you to understand that the Regime will dismiss this curative process because antiwhites have a vested interest in doing so. As with all of their attacks on Westernkind, wherein they MIS pretexts for their antiwhite jealousy, envy, and hatred, they will MIS pretexts to object to Going Free."
 
-Real therapy is about rehabilitation, not creating an perpetual hugbox. Real pro-White Advocacy not a self-help program. It is a political movement with specific political goals. When it comes to cults, sometimes its hard to explain but you know it when you see it. And this is definately it.
+Real therapy is about rehabilitation, not creating an perpetual hugbox. Real pro-White Advocacy not a self-help program. It is a political movement with specific political goals. When it comes to cults, sometimes its hard to explain but you know it when you see it. And this is definitely it.
 
 Some choice quotes from the Go Free book:
 
@@ -60,7 +60,7 @@ Do not divide those who make themselves our enemy into enemies. Do not call them
 
 ### The Telegram
 
-Futher evidence of the oddity of the NWG followers can be seen in these exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. It has about 80 members. 
+Further evidence of the oddity of the NWG followers can be seen in these exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. It has about 80 members. 
 
 They offer regular training in the "Go-Free Method”.
 
@@ -107,7 +107,7 @@ Jared George did The After Party podcast with Jason. He has a [YouTube channel](
 
 The White People's Press focuses on non-political content, which isn't inherently bad, but it is notable that it matches NWG's dismissal of political action. Not much is known about the editor-in-chief Tony Vermont other than the fact that his only public appearance was on NWG’s [podcast](https://www.spreaker.com/user/nowhiteguilt/tap-after-hours-no-white-guilt-the-great_1). It seems very apparent that NWG and his circle have an enormous amount of influence at The White People's Press if they don’t outright control it. 
 
-It is without a doubt that the NWG community sees The White People's Press as a vehicle for thier messaging as shown in NWG inner circle Final Blossom's [timeline video](https://odysee.com/@Finalblossom:3/Go-Free-Community---Brief-Timeline:8) mentioned earlier and her [video on her vision for the future](https://odysee.com/@Finalblossom:3/Predictions-for-Westernkind:f) of White Wellbeing.
+It is without a doubt that the NWG community sees The White People's Press as a vehicle for their messaging as shown in NWG inner circle Final Blossom's [timeline video](https://odysee.com/@Finalblossom:3/Go-Free-Community---Brief-Timeline:8) mentioned earlier and her [video on her vision for the future](https://odysee.com/@Finalblossom:3/Predictions-for-Westernkind:f) of White Wellbeing.
 
 ### The NWG Network - School of the West
 
@@ -119,7 +119,7 @@ On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host t
 
 ### Conclusion
 
-What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is an operation to off-ramp and contain potential White nationalists whom would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, gives credence toward the latter. Whatever it is, it's weird and it's dangerous.
+What is Jason Köhne and his cohort’s motive? At best, it’s simply a cult centered around Jason Köhne and his unappealing philosophy. Another possibility is that this is an operation to off-ramp and contain potential White nationalists who would otherwise find a home in groups that engage politically with the system. His persistence and seeming abundance of resources, influence, and manpower, when he should have very little, gives credence toward the latter. Whatever it is, it's weird and it's dangerous.
 
 *   NWG does not care about White people.
 *   NWG is not harmless.
