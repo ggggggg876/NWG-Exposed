@@ -13,13 +13,17 @@ A few things about Jason Köhne and the NWG community:
 
 These are not things pro-White people do.  
 
-### Jason Köhne and His Clique
+### Jason Köhne
 
 Jason Köhne (NoWhiteGuilt) is primarily a [YouTube channel](https://www.youtube.com/c/NoWhiteGuilt/videos) personality. His 'pro-White' YouTube channel was started in 2014 and has suspiciously been able to survive YouTube's aggressive purging of pro-White content this entire time.
 
 His YouTube channel has 25k subscribers. That's a relatively small channel. For context: the biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views.
 
 Jason Köhne was born, raised, and still lives in the D.C. area. It has been confirmed that Jason Köhne [worked as a correctional officer](https://odysee.com/@SouthernDingo:7/officernwg:b) in Virginia from about 2006 to at least 2021. Its unknown if he still works in this capacity. He doesn't seem to be extraordinarily wealthy.
+
+
+
+### His Clique
 
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking. 
 
@@ -38,7 +42,7 @@ The following are sites associated with Jason Köhne and the NWG:
 *   [Wsternkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
 *   [Buygofree.com](http://Buygofree.com): goes to his book listing on Amazon.
 
-Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@SouthernDingo:7/officernwg:b) is a video timeline of NWG community activities by inner circle member ______. The following sites are NWG community projects:
+Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@SouthernDingo:7/officernwg:b) is a video timeline of NWG community activities by inner circle member Final Blossom. The following sites are NWG community projects:
 
 *   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
 *   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
@@ -60,7 +64,9 @@ The White People's Press focuses on non-political content, which isn't inherentl
 
 ![](SotW-1.png)  
 
-On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in this article by a NWG follower that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads]([https://odysee.com/@School_of_the_West:b](https://odysee.com/@School_of_the_West:b?view=about)). Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming? 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. What is going on here?
+On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in interview that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads]([https://odysee.com/@School_of_the_West:b](https://odysee.com/@School_of_the_West:b?view=about)). 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views.
+
+Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming?
 
 ### The Telegram
 
