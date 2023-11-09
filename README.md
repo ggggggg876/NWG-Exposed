@@ -33,7 +33,7 @@ The following are sites associated with Jason Köhne and the NWG:
 
 *   [https://www.youtube.com/c/NoWhiteGuilt/videos](https://www.youtube.com/c/NoWhiteGuilt/videos): Jason Köhne's YouTube channel.
 *   [Nowhiteguilt.org](http://Nowhiteguilt.org): His personal website. [/links](https://www.nowhiteguilt.org/links/) for all his social media and more.
-*   [spreaker.com/show/going-free](https://www.spreaker.com/show/going-free): His Spreaker Channel where you can see all his past show content.
+*   [spreaker.com/user/nowhiteguilt](https://www.spreaker.com/user/nowhiteguilt): His Spreaker Channel where you can see all his past show content.
 *   [Nowhiteguiltcollectibles.com](http://nowhiteguiltcollectibles.com): His merch store.
 *   [Wsternkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
 *   [Buygofree.com](http://Buygofree.com): goes to his book listing on Amazon.
