@@ -48,25 +48,33 @@ Beyond the sites listed above Köhne has apparently inspired his relatively smal
 *   https://www.whiteartcollective.com/
 *   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
 
-### The NWG Network - Jared George and The White People's Press
+### The Book
 
-Jared George did The After Party podcast with Jason. He has a [YouTube channel](https://www.youtube.com/channel/UCQecLi2rXNQDj2QcZjsuK1g) and a [site for his music](http://thegreatorder.com) - both harmless. Jason comments on his videos. They're obviously very good friends. Jared George is also very involved at [The White People's Press](http://whitepeoplepress.com). The book “Folk” was essentially his project. He is credited as the sole producer and of the ten authors in the book, three, Jason Köhne, Jared George, and Lovely Porridge, are in the NWG inner circle. In the White People Quarterly Vol. 1 No. 4 the first article in the magazine is by Jared about a video contest he hosted with Lovely Porridge at [lastmessagetothewest.com](http://lastmessagetothewest.com). Jason Köhne submitted an entry in the contest. Jared George also contributed a poem in the same issue. Jason Köhne likes [poetry](https://www.nowhiteguilt.org/poetry-short-story-readings/).. He reads it on [his channel](https://www.youtube.com/playlist?list=PLUWNvBwlnr7loj_eApsHFRHDKPFhAAAD3) and, there’s quite a lot of it in the White People Quarterly.  
+Jason's book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](https://ia904707.us.archive.org/16/items/naggers.net/Go%20Free%20-%20A%20Guide%20To%20Aligning%20With%20The%20Archetype%20of%20Westernkind.pdf)” - the holy text of the NWG community - is essentially a self-help book to rid yourself of any negative thoughts you may have about being White (meme-pathogens), and becoming an advocate for White wellbeing according to Jason's view. The book fails on both of these fronts. First, anyone genuinely having negative self-talk regarding their White identity would be better off with trusted therapudic methods like CBT rather than the "meme-curatives" being offered by Jason. Secondly, becoming a White Wellbeing advocate in the NWG vain, is ineffective by design as it does not challenge the real political systems oppressing White peoples, instead settling for continous soul-searching and alienating of others. We read: 
 
-The White People's Press focuses on non-political content, which isn't inherently bad, but it is notable that it matches NWG's dismissal of political action. Not much is known about the editor-in-chief Tony Vermont other than the fact that his only public appearance was on NWG’s [podcast](https://www.spreaker.com/user/nowhiteguilt/tap-after-hours-no-white-guilt-the-great_1). It seems very apparent that NWG and his circle have an enormous amount of influence at The White People's Press if they don’t outright control it. 
+“I have developed the Archetype Alignment Protocol (AAP) —the process you will use to align yourself with the archetype of Westernkind —the process you will use to Go Free. Going Free is the only path to purifying yourself of the deep-seated toxic beliefs undermining your life. By way of this work, you will come to understand the disease inflicted upon us, a disease I call white-noir. You will be given the tools to cure yourself by identifying, treating, and immunizing yourself against meme-pathogens (MPs) that cause white-noir. As you Go Free, you will awaken the ancient and suppressed potential of Westernkind within you. You will thereby increase your potential-to-power (PTP).”
 
-### The NWG Network - School of the West
+It reads like a cult handbook because, to a degree, it is. Jason takes some concepts that are true: White political oppression & antiWhite narratives in the media; and feelings that are valid: internal discord regareding negative beliefs on your own White identity; and takes advantage of people by offering an all-in-one "solution" and community. The "solution" is not a solution because "Going Free" is not a real theraputic method or anything based in science. Its made up by a correctional officer in Virginia. Like other cults, it is focused on an amateur's made up self-help system with levels (degrees), and a ready-made community whom are the only ones who understand you. 
 
-[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents" and another project in the NWG network.  
+"It is important for you to understand that the
+Regime will dismiss this curative process because antiwhites have a
+vested interest in doing so. As with all of their attacks on Westernkind,
+wherein they MIS pretexts for their antiwhite jealousy, envy, and hatred,
+they will MIS pretexts to object to Going Free."
 
-![](SotW-1.png)  
+Real therapy is about rehabilitation, not creating an perpetual hugbox. Real pro-White Advocacy not a self-help program. It is a political movement with specific political goals. When it comes to cults, sometimes its hard to explain but you know it when you see it. And this is definately it.
 
-On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in interview that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads]([https://odysee.com/@School_of_the_West:b](https://odysee.com/@School_of_the_West:b?view=about)). 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views.
+Some choice quotes from the Go Free book:
 
-Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming?
+"You are white positive. Anyone who disagrees with you is white negative. You serve White Wellbeing . Anyone who disagrees with you serves white illbeing."
+
+"We, as white men and women, do not have enemies; we have one enemy.
+What group of people are our enemy? Antiwhites .
+Do not divide those who make themselves our enemy into enemies. Do not call them by the names of their taking: Marxists, cultural Marxists, economic Marxists, liberals, globalists, progressives, feminists (first wave, second wave, third wave), Chicano nationalists, black nationalists, neocons, social justice warriors and so on—they all become antiwhites whenever they cause, seek or support the harm of Westernkind. (...) Moreover, do not say white antiwhites , black antiwhites , or Jewish antiwhites etc. unless clarity requires it. And again, return to antiwhite as soon as possible."
 
 ### The Telegram
 
-These are exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. It has about 80 members. 
+Futher evidence of the oddity of the NWG followers can be seen in these exclusive screenshots from the "Prometheum Open Chat" on Telegram, the main gathering place for NWG enthusiasts. It has about 80 members. 
 
 They offer regular training in the "Go-Free Method”.
 
@@ -94,29 +102,21 @@ Here is a video of Jason telling you to hand out these cards to random people wh
 
 Normal people don’t act like this.
 
-### The Book
+### The NWG Network - Jared George and The White People's Press
 
-Jason's book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](https://ia904707.us.archive.org/16/items/naggers.net/Go%20Free%20-%20A%20Guide%20To%20Aligning%20With%20The%20Archetype%20of%20Westernkind.pdf)” - the holy text of the NWG community - is essentially a self-help book to rid yourself of any negative thoughts you may have about being White (meme-pathogens), and becoming an advocate for White wellbeing according to Jason's view. The book fails on both of these fronts. First, anyone genuinely having negative self-talk regarding their White identity would be better off with trusted therapudic methods like CBT rather than the "meme-curatives" being offered by Jason. Secondly, becoming a White Wellbeing advocate in the NWG vain, is ineffective by design as it does not challenge the real political systems oppressing White peoples, instead settling for continous soul-searching and alienating of others. We read: 
+Jared George did The After Party podcast with Jason. He has a [YouTube channel](https://www.youtube.com/channel/UCQecLi2rXNQDj2QcZjsuK1g) and a [site for his music](http://thegreatorder.com) - both harmless. Jason comments on his videos. They're obviously very good friends. Jared George is also very involved at [The White People's Press](http://whitepeoplepress.com). The book “Folk” was essentially his project. He is credited as the sole producer and of the ten authors in the book, three, Jason Köhne, Jared George, and Lovely Porridge, are in the NWG inner circle. In the White People Quarterly Vol. 1 No. 4 the first article in the magazine is by Jared about a video contest he hosted with Lovely Porridge at [lastmessagetothewest.com](http://lastmessagetothewest.com). Jason Köhne submitted an entry in the contest. Jared George also contributed a poem in the same issue. Jason Köhne likes [poetry](https://www.nowhiteguilt.org/poetry-short-story-readings/).. He reads it on [his channel](https://www.youtube.com/playlist?list=PLUWNvBwlnr7loj_eApsHFRHDKPFhAAAD3) and, there’s quite a lot of it in the White People Quarterly.  
 
-“I have developed the Archetype Alignment Protocol (AAP) —the process you will use to align yourself with the archetype of Westernkind —the process you will use to Go Free. Going Free is the only path to purifying yourself of the deep-seated toxic beliefs undermining your life. By way of this work, you will come to understand the disease inflicted upon us, a disease I call white-noir. You will be given the tools to cure yourself by identifying, treating, and immunizing yourself against meme-pathogens (MPs) that cause white-noir. As you Go Free, you will awaken the ancient and suppressed potential of Westernkind within you. You will thereby increase your potential-to-power (PTP).”
+The White People's Press focuses on non-political content, which isn't inherently bad, but it is notable that it matches NWG's dismissal of political action. Not much is known about the editor-in-chief Tony Vermont other than the fact that his only public appearance was on NWG’s [podcast](https://www.spreaker.com/user/nowhiteguilt/tap-after-hours-no-white-guilt-the-great_1). It seems very apparent that NWG and his circle have an enormous amount of influence at The White People's Press if they don’t outright control it. 
 
-It reads like a cult handbook because, to a degree, it is. Jason takes some concepts that are true: White political oppression & antiWhite narratives in the media; and feelings that are valid: internal discord regareding negative beliefs on your own White identity; and takes advantage of people by offering an all-in-one "solution" and community. The "solution" is not a solution because "Going Free" is not a real theraputic method or anything based in science. Its made up by a correctional officer in Virginia. Like other cults, it is focused on an amateur's made up self-help system with levels (degrees), and a ready-made community whom are the only ones who understand you. 
+### The NWG Network - School of the West
 
-"It is important for you to understand that the
-Regime will dismiss this curative process because antiwhites have a
-vested interest in doing so. As with all of their attacks on Westernkind,
-wherein they MIS pretexts for their antiwhite jealousy, envy, and hatred,
-they will MIS pretexts to object to Going Free."
+[Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents" and another project in the NWG network.  
 
-Real therapy is about rehabilitation, not creating an perpetual hugbox. Real pro-White Advocacy not a self-help program. It is a political movement with specific political goals. When it comes to cults, sometimes its hard to explain but you know it when you see it. And this is definately it.
+![](SotW-1.png)  
 
-Some choice quotes from the Go Free book:
+On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in interview that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads]([https://odysee.com/@School_of_the_West:b](https://odysee.com/@School_of_the_West:b?view=about)). 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views.
 
-"You are white positive. Anyone who disagrees with you is white negative. You serve White Wellbeing . Anyone who disagrees with you serves white illbeing."
-
-"We, as white men and women, do not have enemies; we have one enemy.
-What group of people are our enemy? Antiwhites .
-Do not divide those who make themselves our enemy into enemies. Do not call them by the names of their taking: Marxists, cultural Marxists, economic Marxists, liberals, globalists, progressives, feminists (first wave, second wave, third wave), Chicano nationalists, black nationalists, neocons, social justice warriors and so on—they all become antiwhites whenever they cause, seek or support the harm of Westernkind. (...) Moreover, do not say white antiwhites , black antiwhites , or Jewish antiwhites etc. unless clarity requires it. And again, return to antiwhite as soon as possible."
+Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming?
 
 ### Conclusion
 
