@@ -92,12 +92,14 @@ Beyond the sites listed above Köhne has apparently inspired his relatively smal
 
 *   [Westernkind Games](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
 *   [Whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
-*   [Studio DynoStorm](https://studiodynostorm.com/): A video game studio
-*   https://www.whitedate.net/: A Whites only dating website
-*   https://whitedeal.net/
-*   https://whitechild.net/
-*   https://www.whiteartcollective.com/
+*   [Studio DynoStorm](https://studiodynostorm.com/): A video game studio.
+*   [WhiteDate.net](https://www.whitedate.net/): A Whites-only dating website.
+*   [WhiteDeal.net](https://whitedeal.net/): A Whites-only job listing website.
+*   [WhiteChild.net](https://whitechild.net/): A Whites-only reproductive network website.
+*   [WhiteArtCollective](https://www.whiteartcollective.com/): A community of White artists.
 *   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
+
+Not all these are bad ideas, but they are tainted by NWG.
 
 ### The NWG Network - Jared George and The White People's Press
 
@@ -113,7 +115,7 @@ It is without a doubt that the NWG community sees The White People's Press as a 
 
 On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/hiss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in [this interview](https://odysee.com/@Yizz_the_Eunuch:e/ecc81schoolofthewestwbrantdanger:a) that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind".
 
-On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads](https://odysee.com/@School_of_the_West:b?view=about). 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. Its very strange that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming. Why? From what I can tell, Köhne's version of White Wellbeing doesn't conflict with the larger society's understanding of Python Programming. Perhaps there are a few subjects the NWG community needs to set the record straight on but all? The purpose, of course is to consume an unfortunate child's entire education, isolating them completely from the outside world.
+On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads](https://odysee.com/@School_of_the_West:b?view=about). 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views. Its very strange that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming. Why? From what I can tell, Köhne's version of White Wellbeing doesn't conflict with the larger society's understanding of Python Programming. Perhaps there are a few subjects the NWG community needs to set the record straight on but all? The purpose, of course is to consume an unfortunate child's entire education, isolating them further from the outside world.
 
 ### Conclusion
 
