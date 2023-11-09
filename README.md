@@ -112,8 +112,6 @@ The White People's Press focuses on non-political content, which isn't inherentl
 
 [Schoolofthewest.world](http://Schoolofthewest.world) is an "an educational resource for homeschooling parents" and another project in the NWG network.  
 
-![](SotW-1.png)  
-
 On the front page, in big letters, it says "Dignity for All - Even Westernkind". Lower on the page you'll see "White Well-Being" alongside Language Arts and Mathematics. Upon exploring the content you'll find hundreds of lessons, usually text accompanied by a video. Here is Jason [working on his car](https://www.schoolofthewest.world/ss-vehicles/), as part of a lesson in self-sufficiency. School of the West is the project of a Brant Danger whom explains in interview that all the content on the site was made by a team of volunteers. Take [this random anatomy video](https://odysee.com/@School_of_the_West:b/Skin-and-hair:f). It’s well done and at the end gives the kids a positive message about being "Westernkind". On the [Odysee page](https://odysee.com/@School_of_the_West:b) where they host their videos we see that this channel has [584 Uploads]([https://odysee.com/@School_of_the_West:b](https://odysee.com/@School_of_the_West:b?view=about)). 584 quality educational videos is a monumental task. And all seemingly made exclusively for this School of the West. The majority of which have fewer than 10 views.
 
 Are we to believe that Jason Köhne's YouTube channel that gets 1-3k views per video and his braindead philosophy inspired all these people to make video courses about everything from Trigonometry to History to Python Programming?
