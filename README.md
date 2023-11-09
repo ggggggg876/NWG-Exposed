@@ -86,7 +86,7 @@ Here is a [vocabulary test](Go-Free-Vocabulary-A1.pdf).
 
 Here is a [written exam worksheet](Written-GFP-Exam.pdf).
 
-Here is a video of Jason telling you to hand out these cards to random people while telling them "I love you".
+Here is a [video](https://odysee.com/@Finalblossom:3/No-White-Guilt-Business-Cards:b) of Jason telling you to hand out [these cards](No-White-Guilt-Business-Card-Design.jpg). to random people while telling them "I love you".
 
 Normal people don’t act like this.
 
