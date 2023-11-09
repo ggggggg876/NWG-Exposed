@@ -9,7 +9,7 @@ A few things about Jason Köhne and the NWG community:
 *   NWG accepts transsexuals.
 *   Jason Köhne brings his pet tranny to WN events.
 *   Jason Köhne has advocated for the [doxing of PF members](https://dailyrake.ca/2021/12/11/white-while-peeing-part-3-pf-meltdown/).
-*   Jason Köhne believes white nationalists are ["garbage human beings" and "the lowest form of life"](https://odysee.com/@Commander_Rockwell:b/Jason-Kuhne-piece-of-shit:9).
+*   Jason Köhne believes White nationalists are ["garbage human beings" and "the lowest form of life"](https://odysee.com/@Commander_Rockwell:b/Jason-Kuhne-piece-of-shit:9).
 
 These are not things pro-White people do.  
 
