@@ -38,16 +38,6 @@ The following are sites associated with Jason Köhne and the NWG:
 *   [Wsternkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
 *   [Buygofree.com](http://Buygofree.com): goes to his book listing on Amazon.
 
-Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@SouthernDingo:7/officernwg:b) is a video timeline of NWG community activities by inner circle member Final Blossom. The following sites are NWG community projects:
-
-*   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
-*   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
-*   https://www.whitedate.net/
-*   https://whitedeal.net/
-*   https://whitechild.net/
-*   https://www.whiteartcollective.com/
-*   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
-
 ### The Book
 
 Jason's book “[Go Free: A Guide to Aligning with the Archetype of Westernkind](https://ia904707.us.archive.org/16/items/naggers.net/Go%20Free%20-%20A%20Guide%20To%20Aligning%20With%20The%20Archetype%20of%20Westernkind.pdf)” - the holy text of the NWG community - is essentially a self-help book to rid yourself of any negative thoughts you may have about being White (meme-pathogens), and becoming an advocate for White wellbeing according to Jason's view. The book fails on both of these fronts. First, anyone genuinely having negative self-talk regarding their White identity would be better off with trusted therapudic methods like CBT rather than the "meme-curatives" being offered by Jason. Secondly, becoming a White Wellbeing advocate in the NWG vain, is ineffective by design as it does not challenge the real political systems oppressing White peoples, instead settling for continous soul-searching and alienating of others. We read: 
@@ -99,6 +89,18 @@ Here is a [written exam worksheet](Written-GFP-Exam.pdf).
 Here is a video of Jason telling you to hand out these cards to random people while telling them "I love you".
 
 Normal people don’t act like this.
+
+### The NWG Network
+
+Beyond the sites listed above Köhne has apparently inspired his relatively small community to form a network of NWG associated projects. [Here](https://odysee.com/@SouthernDingo:7/officernwg:b) is a video timeline of NWG community activities by inner circle member Final Blossom. The following sites are NWG community projects:
+
+*   [Westernkindgames.com](http://Westernkindgames.com): A very creepy conversation simulator to hone your "Go Free" skills.
+*   [whitewellbeing.community](https://whitewellbeing.community): A "White Well-Being" internet search-engine.
+*   https://www.whitedate.net/
+*   https://whitedeal.net/
+*   https://whitechild.net/
+*   https://www.whiteartcollective.com/
+*   [nowhiteguilt.quora.com](http://nowhiteguilt.quora.com): "White Well-Being" advocates gathered here to shill their worldview on Quora.
 
 ### The NWG Network - Jared George and The White People's Press
 
