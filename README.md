@@ -36,7 +36,7 @@ The following are sites associated with Jason Köhne and the NWG:
 *   [spreaker.com/user/nowhiteguilt](https://www.spreaker.com/user/nowhiteguilt): His Spreaker Channel where you can see all his past show content.
 *   [Nowhiteguiltcollectibles.com](http://nowhiteguiltcollectibles.com): His merch store.
 *   [Wsternkind.com](http://westernkind.com): A website associated with NWG that links to his merch store.
-*   [Buygofree.com](http://Buygofree.com): goes to his book listing on Amazon.
+*   [Buygofree.com](http://Buygofree.com): Goes to his book listing on Amazon.
 
 ### The Book
 
