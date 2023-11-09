@@ -15,7 +15,7 @@ These are not things pro-White people do.
 
 ### Jason Köhne and His Followers
 
-Jason Köhne (NoWhiteGuilt) is primarily a [YouTube channel](https://www.youtube.com/c/NoWhiteGuilt/videos) personality. His 'pro-White' YouTube channel was started in 2014 and has suspiciously been able to survive YouTube's aggressive purging of pro-White content this entire time.
+Jason Köhne (NoWhiteGuilt) is primarily a [YouTube](https://www.youtube.com/c/NoWhiteGuilt/videos) personality. His 'pro-White' YouTube channel was started in 2014 and has suspiciously been able to survive YouTube's aggressive purging of pro-White content this entire time.
 
 His YouTube channel has 25k subscribers. That's a relatively small channel. For context: the biggest channels have tens of millions of subscribers. [This guy](https://www.youtube.com/@StezStixFix) who fixes electronics has 100k subs. [This lady](https://www.youtube.com/@VBirchwood) who likes historical fashion has 70k subs. Most of his videos have 1-3k views.
 
