@@ -23,7 +23,7 @@ Jason Köhne was born, raised, and still lives in the D.C. area. It has been con
 
 This is a picture of at least some of the NWG inner circle. They are known to attend WN events to promote their way of thinking. 
 
-![](Clique.png)
+![](Clique2.png)
 
 The first thing normal people will notice about Jason Köhne and his followers is the strange lexicon. The term "Antiwhite" itself is common enough and not specific to NWG, but the words "AntiWhiteism", "Westernkind", "Westfolk", “Westmen”, "White Well-Being", "Go-Free", “Meme-Pathogen” and [these others](/Advanced-Lexicon.pdf) are. These words identify when you're dealing with an NWG entity. Having five additional made-up words for the concept of 'White people' is not helping. The creation of unnecessary jargon seems only to have the possibly intentional purpose of insulating the group from outsiders. It's weird and it makes NWG followers look weird to other people because it seems like they are making up words (which they are).
 
